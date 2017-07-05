@@ -1,1 +1,0 @@
-# Nobuhito-Nishi.github.io
